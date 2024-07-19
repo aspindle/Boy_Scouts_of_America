@@ -9,3 +9,5 @@ Lastly, I'd remove any cookie/popcorn sales, but I'd budge on that one.
 With regard to Copyright, if you are mad about me posting >10 year old versions of these books, please rethink your priorities. 
 
 In other words, we can have that conversation after you've retired a US flag 🇺🇸 by burning it 🔥
+
+Oh and at Officer Velasquez, either memorize your "bad cop" lines, or learn how to act a little. 
