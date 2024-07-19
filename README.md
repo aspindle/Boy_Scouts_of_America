@@ -8,4 +8,4 @@ Lastly, I'd remove any cookie/popcorn sales, but I'd budge on that one.
 
 With regard to Copyright, if you are mad about me posting >10 year old versions of these books, please rethink your priorities. 
 
-And by that I mean go retire a USA flag by burning it.
+In other words, we can have that conversation after you've retired a US flag 🇺🇸 by burning it 🔥
